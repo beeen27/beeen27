@@ -2,7 +2,7 @@
 
  - 👩   **I'm JiBeen**    
 
- - 🇰🇷  **I'm working in South Korea**
+
 
 ### How to reach me? 
 
